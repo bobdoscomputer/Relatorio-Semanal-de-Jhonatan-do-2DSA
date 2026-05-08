@@ -1,2 +1,2 @@
 # Relatorio-Semanal-de-Jhonatan-do-2DSA
-Olá, eu não sei que colocar aqui :P
+Eu aprendi sobre cidadania digital e como eu me sinto um maginal após ter visto o video, além de ser Extremamente vergonha alheia, só faltava eu colocar agua sanitaria nos meus olhos após aquele video; mas pelo menos aprendi que tenho que tomar cuidado com que posto na internet, pois algumas fotos ou videos meus podem se preservar na internet e me comprometer negativamente, além que pessoas mal intencionadas podem usar esses dados para uso proprio, como invadir minha casa ou me ligar para me ameaçar; 
